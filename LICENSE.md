@@ -1,4 +1,4 @@
-#  
+#  jujutsu shenanigans top Scripts offers the most advanced jujutsu shenanigans Script, with auto-collect and esp. Perfect for dominating any match.
 
 
 
